@@ -1,2 +1,2 @@
 # Farm-Management-System
-https://in.docworkspace.com/d/sIM6OyYfdAq_buc0G?sa=601.1037
+https://drive.google.com/file/d/1aknjyS7mWCIP51aPQBuB2c2-epYp9L6u/view?usp=sharing
